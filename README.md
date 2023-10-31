@@ -2,7 +2,7 @@
 
 👋 Greetings, tech enthusiasts! Welcome to ServerOwner, your premier hub for all things Minecraft. Explore our vibrant community where gaming dreams come to life!
 
-📧 **Get in Touch**: You can reach us at [info@serverowner.com](mailto:info@serverowner.com) to start the conversation.
+📧 **Get in Touch**: You can reach us at [info@serverowner.gg](mailto:info@serverowner.gg) to start the conversation.
 
 🤜 **Open to Collaboration**: ServerOwner is the epicenter for joining forces on thrilling Minecraft projects and technologies. Dive into the action with like-minded gamers and creators.
 
