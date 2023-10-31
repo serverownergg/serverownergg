@@ -1,4 +1,4 @@
-🌟 **INTRODUCING SERVEROWNER - YOUR TECH COMMUNITY PARADISE!** 🌟
+# 🌟 INTRODUCING SERVEROWNER - YOUR TECH COMMUNITY PARADISE! 🌟
 
 👋 Greetings, tech enthusiasts! Welcome to ServerOwner, your premier hub for all things Minecraft. Explore our vibrant community where gaming dreams come to life!
 
